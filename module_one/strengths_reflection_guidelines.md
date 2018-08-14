@@ -7,6 +7,10 @@
 
 1. What words or phrases stick out to you for each theme?
 
+Intellection - introspection, appreciates intelligent discussions, critical thinkers, scrutinize theories and concepts
+Input - desire for knowledge, dive deeply into intruiging subjects
+Adaptability - respond in the moment, enjoy life minute by minute
+
 2. How would you define each of your top 5 talents in your own words?
 
 3. Do these top 5 talent themes resonate with you? Why or why not? 
